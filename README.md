@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hasyimieali
-- 👀 I’m interested in learning and create a businness oppoturnity 
+- 👀 I’m interested in learning and create a businness opportunity 
 - 🌱 I’m currently learning many of ai software
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me cmetakimie2@gmail.com
